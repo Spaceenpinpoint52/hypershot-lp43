@@ -1,4 +1,4 @@
-#  
+#  Experience hypershot like never before with instant hypershot Script, the #1 Script. Includes esp and undetectable for unbeatable performance.
 
 
 
